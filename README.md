@@ -4,6 +4,12 @@
 
 ![Lonelyxiya](https://count.getloli.com/get/@lonelyxiya?theme=rule34)
 
-<!---
-Lonelyxiya/Lonelyxiya is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
-You can click the Preview link to take a look at your changes.
+# #
+[Github](https://github.com/LonelyxiyaOVO) hold an office
+
+[Github](https://github.com/Lonelyxiya) deprecated
+
+[Youtube](https://www.youtube.com/@lonelyxiya6043)
+
+[Twitch](https://www.twitch.tv/Lonelyxiya)
+
